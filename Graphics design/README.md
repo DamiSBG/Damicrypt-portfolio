@@ -1,5 +1,5 @@
-https://x.com/Damilare836/status/1902280494667927760?t=ChJW1gTgVXW6crZtTrr7BQ&s=19https://
-x.com/Damilare836/status/1900117682659155995?t=wSnQFqcMG5dErMWZ9WZmfw&s=19
+https://x.com/Damilare836/status/1902280494667927760?t=ChJW1gTgVXW6crZtTrr7BQ&s=19
+https:x.com/Damilare836/status/1900117682659155995?t=wSnQFqcMG5dErMWZ9WZmfw&s=19
 https://x.com/Damilare836/status/1894700411803582930?t=Sqxm4CWmBrqcA3rgRsz0Vw&s=19
 https://x.com/Damilare836/status/1894751331027423532?t=mivE4VubdPx3NrxxSChI_Q&s=19
 https://x.com/Damilare836/status/1900129856660107698?t=i56fe94sCLQlTdqzkXH5tw&s=19
